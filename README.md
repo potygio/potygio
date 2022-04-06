@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @potygio
+- 👀 I’m interested in games, movies and writing
+- 🌱 I’m currently learning programming and deustch
+- 📫 How to reach me ... still working on that
